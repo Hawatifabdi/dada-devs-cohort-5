@@ -1,4 +1,4 @@
-[your name] @yourhandle
-X: @yourhandle | LinkedIn: /in/yourhandle | Discord: yourhandle#0000
+[Hawatif Abdisalam] @Hawatifabdi
+X: @tifasspam | LinkedIn: /in/hawatif-abdisalam | Discord: tifaaaah
 
-"why I'm here ..."
+"I'm here to  grow beside a supportive community of women in tech"
