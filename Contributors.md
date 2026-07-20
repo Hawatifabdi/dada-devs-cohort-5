@@ -5,6 +5,13 @@ X: @yourhandle | LinkedIn: /in/yourhandle | Discord: yourhandle#0000
 
 ---
 
+Enyi Gloria
+X: @museinvelvet | LinkedIn: /in/oluwaseun-enyi | Discord: glow_nft
+
+"As a recent graduate of the Hack4freedom Hackathon, I have grown interest in the Bitcoin ecosystem and seek to grow my skills as a Bitcoin open-source contributor"
+
+---
+
 Breattah @ml-bree
 LinkedIn: /in/breattah-okeyo-0693963b1 | Discord: breattah
 
